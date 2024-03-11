@@ -2,8 +2,6 @@
 
 ![2](https://github.com/NuWang93/Hunt-Showdown-Wildware/assets/162401394/c05fc59a-b688-40fe-913c-8f9b292b8c92)
 
-![3](https://github.com/NuWang93/Hunt-Showdown-Wildware/assets/162401394/9c6df583-fdab-4325-9c7d-d57c2636cfbf)
-
 # 🗃️[ᴅoᴡɴʟoᴀᴅ](https://jmthedesigner.com/storage/z9f4l6n2x0vI/)
 
 ### ✅ʜᴡɪᴅ ᴄʜᴀɴɢᴇʀ
